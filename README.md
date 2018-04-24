@@ -1,2 +1,2 @@
 # Hi-MOM
- A conversation starter useful for any mother
+ A conversation starter useful with any mother
